@@ -1,1 +1,1 @@
-# rsschool-cv
+https://bairbb.github.io/rsschool-cv/
