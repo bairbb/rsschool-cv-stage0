@@ -1,1 +1,1 @@
-https://bairbb.github.io/rsschool-cv/cv
+https://bairbb.github.io/rsschool-cv/
